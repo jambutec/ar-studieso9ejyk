@@ -1,1 +1,0 @@
-# ar-studieso9ejyk
